@@ -8,3 +8,4 @@
 - WhitePia Takasu ホワイトピアたかす
 - Yogo Kogen Snow Park 余呉高原リゾート・ヤップ
 - HachiKita Highlands Ski Resort ハチ・ハチ北スキー場
+- 
